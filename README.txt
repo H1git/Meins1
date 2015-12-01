@@ -1,1 +1,1 @@
-Mein erstes bei GitHub, erste €nderung
+Mein erstes bei GitHub, erste Änderung
